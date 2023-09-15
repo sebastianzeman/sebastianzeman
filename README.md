@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sebastianzeman
-- 👀 I’m interested in racism
-- 🌱 I’m currently learning racism
-- 💞️ I’m looking to collaborate on racism
+- 👀 I’m interested in women
+- 🌱 I’m currently learning women
+- 💞️ I’m looking to collaborate on women 
 - 📫 You can't reach me.
 
 <!---
